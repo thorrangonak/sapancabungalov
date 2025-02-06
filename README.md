@@ -3,9 +3,9 @@ Sapanca Bungalov Otel
 
 <img src="https://cdn.gezivalizi.com/media/2024/08/hat-naturel-sapanca-bungalov-dis-2.webp" jsaction="" class="sFlh5c FyHeAf iPVvYb" style="max-width: 1200px; height: 447px; margin: 0px; width: 766px;" alt="Hat Naturel Resort Bungalov Sapanca - GeziValizi" jsname="kn3ccd" aria-hidden="false">
 
-İletişim için instagram sayfamızdan yazabilirsiniz ; 
+İletişim için aşağıdaki linke tıklayınız ; 
 
-https://www.instagram.com/hatnaturelsapanca?igsh=MXBmZ2tpcWxia2xycA==
+https://bit.ly/sapancabungalov2
 
 Bungalov sapanca
 
